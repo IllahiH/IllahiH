@@ -1,4 +1,4 @@
-## Hi, I’m @Illahi H
+## Hi, I’m @Irfan Ahmed
 
 🎯 Dynamics 365 Architect | Power Platform Specialist | Digital Transformation Advocate
 
